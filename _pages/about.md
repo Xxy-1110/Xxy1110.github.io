@@ -14,7 +14,8 @@ I am Xiaoyu Xia ("夏晓雨" in Chinese).I am a master student at [Shantou Unive
 
 Education
 ======
-**M.S. in Marine Science, 2026(Expected) (Supervised by [Tieyu Wang]([https://homepage.hrbe](https://sci.stu.edu.cn/info/1135/2418.htm)))**
+
+**M.S. in Marine Science, 2026(Expected) (Supervised by [Tieyu Wang](https://sci.stu.edu.cn/info/1135/2418.htm))**
 
 Shantou University, Shantou, Guangdong Province, China
 
