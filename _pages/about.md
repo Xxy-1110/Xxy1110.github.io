@@ -16,6 +16,6 @@ Education
 
 Shantou University, Shantou, Guangdong Province, China
 
-**B.A in Marine Resources and Environment, 2022 (Supervised by [Xinshan Lou](https://fxy.dlou.edu.cn/2015/0909/c8468a146627/page.htm))**
+**B.A in Marine Resources and Environment, 2022 (Supervised by [Xinshan Liu](https://fxy.dlou.edu.cn/2015/0909/c8468a146627/page.htm))**
 
 Dalian Ocean University, Dalian, Liaoning Province, China
